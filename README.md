@@ -11,3 +11,7 @@ Seja Bem vindo.
 
 ValeOpenSource.
 
+Obs: Galera para quem quiser entrar no grupo e participar, por favor manda um email no valeopensource@gmail.com
+
+
+
